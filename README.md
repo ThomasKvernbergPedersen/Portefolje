@@ -1,2 +1,0 @@
-# Portefolje
-Min første nettside
